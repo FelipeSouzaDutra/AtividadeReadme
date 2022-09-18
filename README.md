@@ -43,7 +43,7 @@ O meme surgiu após as pessoas começarem a usar imagem da vilã pensando, com u
 
 # **Mo paz** 😎🏳
 
-O meme **\*mo paz** surge após o Mc Poze do rodo ompartilhar um vídeo em suas redes sociais que deu origem ao meme Mó paz,onde ele dentro da piscina, com um copo de cerveja na mão,diz: **_"Aah, mó paz! Como é que 'nós tá'? Tranquilão com a vida, graças a Deus"_**. Com isso começou surgi farias memes como:
+O meme **mo paz** surge após o Mc Poze do rodo ompartilhar um vídeo em suas redes sociais que deu origem ao meme Mó paz,onde ele dentro da piscina, com um copo de cerveja na mão,diz: **_"Aah, mó paz! Como é que 'nós tá'? Tranquilão com a vida, graças a Deus"_**. Com isso começou surgi farias memes como:
 
 <br>
 <center>
