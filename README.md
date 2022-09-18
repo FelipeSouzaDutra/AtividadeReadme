@@ -71,9 +71,3 @@ Criado pelo humorista Esse Menino, o [vídeo](https://youtu.be/rWj9meqOQrM) que 
   <h1>Referencia</h1>
 
 [Dicionariopopular](https://www.dicionariopopular.com/melhores-memes-do-ano/)
-
-<style>
-  h1 {color:black;
-  }
-
-</style>
